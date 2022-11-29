@@ -1,5 +1,4 @@
-![Black_White_Abstract_Contemporary_Creative_Logo-removebg-preview (Large)](https://user-images.githubusercontent.com/57296740/204583733-48405de8-4096-4877-9b84-209c3b936962.png)
-
+![Black_White_Abstract_Contemporary_Creative_Logo-removebg-preview](https://user-images.githubusercontent.com/57296740/204583856-11279b42-7d14-4607-9cfb-a56d832bfe68.png)
 
 # Hi there 👋
 
