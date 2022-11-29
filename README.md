@@ -1,4 +1,5 @@
-![coollogo_com-12548567](https://user-images.githubusercontent.com/57296740/204575705-8119a5a6-d852-4e4c-8f87-3ae539572e0a.png)
+![coollogo_com-12548567 (Large)](https://user-images.githubusercontent.com/57296740/204576582-608049f0-6c37-4368-ab97-041862463b94.png)
+
 
 # Hi there 👋
 
