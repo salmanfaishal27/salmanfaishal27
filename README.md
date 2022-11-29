@@ -1,4 +1,5 @@
-![Black White Abstract Contemporary Creative Logo (1)](https://user-images.githubusercontent.com/57296740/204584433-23d768a0-6b5b-40c3-a38c-df145d1c7526.png)
+![image (1) (Medium)](https://user-images.githubusercontent.com/57296740/204586321-45e9b0a0-f6b8-4338-9b31-424e1015dd7d.png)
+
 
 # Hi there 👋
 
