@@ -1,8 +1,7 @@
 ### Hi there 👋
 
 
-- 🔭 I’m currently working on my skill's to improve as web developer
-- 🌱 I’m currently learning full stack programming
+- 🌱 I’m currently learning Data Scientist
 - 💬 Ask me about anything
-- 📫 How to reach me: [linkedin](https://www.linkedin.com/in/salmanfaishal/)
+- 📫 How to reach me: [linkedin](https://www.linkedin.com/in/salmanfaishal/) [discord](discordapp.com/users/Salman Faishal#1802)
 
